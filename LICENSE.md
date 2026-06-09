@@ -1,4 +1,4 @@
-
+baddies premium Scripts is the best baddies Script, featuring one-hit kill and undetectable. Safe and powerful for all your needs.
 
 
 
